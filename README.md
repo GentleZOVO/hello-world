@@ -2,4 +2,4 @@
 
 Hi, I'm Steven.
 
-My favourite food is potato.
+I love apple.
